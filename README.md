@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">My name is Mai and I'm a Student at faculty of Computers and artificial intelligence</p>
+<p align="left">My name is Mai and I'm a student at faculty of Computers and artificial intelligence</p>
 
 ###
 
