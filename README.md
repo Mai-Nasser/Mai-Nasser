@@ -65,10 +65,10 @@ Prepare for cloud certifications
 ✨ Fun Fact
 When I'm not studying or coding:
 
-📖 I enjoy reading tech blogs and cloud architecture case studies
+📚 I enjoy reading books that spark curiosity
 
-☕ I'm a coffee enthusiast who believes in "code brewed fresh daily"
+🌌 I love watching the stars and open skies
 
-🌍 I dream of working on global-scale cloud infrastructure
+🚶‍♂️ Long quiet walks help me reflect and reset
 
-🎧 I code best with lofi music in the background
+🌸 I find inspiration in flowers and little details of nature
