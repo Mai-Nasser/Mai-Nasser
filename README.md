@@ -3,7 +3,7 @@
 **GRC Analyst | Cybersecurity Governance, Risk & Compliance**
 Computer Science Graduate — Fayoum University | Cybersecurity Instructor @ NTI
 
-LinkedIn · Cairo
+[LinkedIn](https://linkedin.com/in/mai-nasser-2b84b7249) · Cairo
 
 ---
 
